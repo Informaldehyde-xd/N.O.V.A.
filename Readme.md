@@ -3,6 +3,7 @@ revived by IX32PSL from Informaldehyde-xd
 
 Hello, well here's the N.O.V.A. 1, 2 is also on the way. it's actually a beautiful game imo.
 hope you guys enjoy it.
+
 Consider to join out Discord server 'The Great Games Society'
 🔗 ---
 
